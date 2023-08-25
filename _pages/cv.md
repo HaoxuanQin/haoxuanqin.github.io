@@ -33,5 +33,5 @@ Skills
 
 leadership
 ======
-*2021.9-2022.9
-  *2020 Class One Chemistry Class Leader and Secretary of the Communist Youth League Branch
+* 2021.9-2022.9
+  * 2020 Class One Chemistry Class Leader and Secretary of the Communist Youth League Branch
